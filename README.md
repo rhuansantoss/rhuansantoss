@@ -1,6 +1,6 @@
 # 🔗 Olá! Eu sou o Rhuan Santos ✌🏼
 
-🤵🏻 Tenho 25 anos, moro no Rio de Janeiro e desde pequeno sou apaixonado por computadores. Nas horas vagas gosto de ler e jogar videogame.
+🤵🏻 Tenho 25 anos, moro no Rio de Janeiro e desde pequeno sou apaixonado por tecnologia.
 
 🧑🏻‍🎓 Sou técnico em informática pelo Senac Rj.
 
